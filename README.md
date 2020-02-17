@@ -9,6 +9,9 @@ https://podcastnotes.org/2019/03/07/naval-2018/
 
 https://www.sharesansar.com/company/bokl
 
+https://ehostingserver.com
+
+
 if u want to know finance then watch some bollywood movies
 
 1. GURU
