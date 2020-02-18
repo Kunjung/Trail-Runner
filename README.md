@@ -13,6 +13,8 @@ https://ehostingserver.com
 
 nikleshshakya.com.np
 
+https://www.npr.org/podcasts/510338/all-guides
+
 if u want to know finance then watch some bollywood movies
 
 1. GURU
