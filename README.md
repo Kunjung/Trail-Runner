@@ -21,6 +21,7 @@ Refreshers:
 3. Shawshank redemption
 
 4 am - 8 am  >> Golden Time
+4 am - 8 am  >> Weekend Golden Time
 
 if u want to know finance then watch some bollywood movies
 
