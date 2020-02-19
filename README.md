@@ -15,6 +15,11 @@ nikleshshakya.com.np
 
 https://www.npr.org/podcasts/510338/all-guides
 
+Refreshers:
+1. A Walk to remember
+2. October Sky
+3. Shawshank redemption
+
 if u want to know finance then watch some bollywood movies
 
 1. GURU
