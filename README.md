@@ -11,7 +11,7 @@ https://www.sharesansar.com/company/bokl
 
 https://ehostingserver.com
 
-nikleshshakya.com.np
+http://nikleshshakya.com.np
 
 https://www.npr.org/podcasts/510338/all-guides
 
