@@ -27,6 +27,9 @@ Quality of life
 https://teleport.org/cities/kathmandu/
 
 
+Bicycle Safety
+https://bicyclesafe.com/
+
 4 am - 8 am  >> Golden Time
 4 am - 8 am  >> Weekend Golden Time
 
