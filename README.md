@@ -30,6 +30,10 @@ https://teleport.org/cities/kathmandu/
 Bicycle Safety
 https://bicyclesafe.com/
 
+New music
+https://www.npr.org/sections/world-cafe/2020/02/19/807358027/madison-mcferrins-hypnotic-music-will-pull-you-in
+
+
 4 am - 8 am  >> Golden Time
 4 am - 8 am  >> Weekend Golden Time
 
