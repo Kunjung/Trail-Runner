@@ -23,6 +23,9 @@ Refreshers:
 Study Study Study - Transport Kathmandu
 https://www.worldbank.org/content/dam/Worldbank/document/SAR/nepal/Gender-and-Public-Transport-in-Nepal-Report.pdf
 
+Quality of life
+https://teleport.org/cities/kathmandu/
+
 
 4 am - 8 am  >> Golden Time
 4 am - 8 am  >> Weekend Golden Time
