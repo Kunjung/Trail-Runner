@@ -34,6 +34,10 @@ New music
 https://www.npr.org/sections/world-cafe/2020/02/19/807358027/madison-mcferrins-hypnotic-music-will-pull-you-in
 
 
+Kathmandu Kora Challenge 50km, 75km, 100km
+https://kathmandukora.net
+
+
 4 am - 8 am  >> Golden Time
 4 am - 8 am  >> Weekend Golden Time
 
