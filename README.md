@@ -50,7 +50,11 @@ Famous among kids on your bicycle (Quora - Soruban T):
 https://www.quora.com/What-are-the-pros-and-cons-of-using-a-bicycle-instead-of-a-motor-vehicle
 
 
-https://globalnews.ca/news/3933438/kung-fu-nuns-begin-bike-trip-gender-equality/
+Bicyclists: https://globalnews.ca/news/3933438/kung-fu-nuns-begin-bike-trip-gender-equality/
+
+
+JICA Traffic Report: https://openjicareport.jica.go.jp/pdf/12345484_01.pdf
+
 
 if u want to know finance then watch some bollywood movies
 
