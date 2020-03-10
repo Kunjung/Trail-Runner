@@ -63,6 +63,7 @@ Tori the Dog Soundtrack (Coding Train) https://soundcloud.com/adam-blau
 - Honey and Clover
 - Yuujin A [ soundtrack ]
 
+PHP Harvard Playlist http://cs75.tv/2012/summer/
 
 if u want to know finance then watch some bollywood movies
 
