@@ -65,6 +65,9 @@ Tori the Dog Soundtrack (Coding Train) https://soundcloud.com/adam-blau
 
 PHP Harvard Playlist http://cs75.tv/2012/summer/
 
+Isle of Calm Music for Social Distancing:
+https://www.npr.org/2020/03/13/815457669/isle-of-calm-stream-6-hours-of-soothing-music
+
 if u want to know finance then watch some bollywood movies
 
 1. GURU
